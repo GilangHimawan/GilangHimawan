@@ -1,5 +1,4 @@
 ## Hi there 👋
-**
 Perkenalkan nama saya **M Gilang Himawan**.<br>
 
 - 🔭 I’m currently study on Politenik Negeri Banyuwangi
